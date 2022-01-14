@@ -1,3 +1,3 @@
 ## Hi there. I'm Alfonso
-* Currently working in Cochrane, Chile.
+* I'm currently working in Cochrane, Chile.
 
